@@ -1,4 +1,4 @@
-# WI Grower's Association Postcards
+# WI Grower's Association Postcards (fall 2021)
 
 These mock advertisment postcards were created as an assignment for an Integrating Writing and Design Course. All images used are from Unsplash and are allowed to be used freely for commercial and non-commercial purposes. The following information about the creation process is pulled from the course's final portfolio design gloss on this piece: 
 
